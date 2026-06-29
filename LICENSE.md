@@ -1,4 +1,4 @@
-# 
+# Open Source Adobe Illustrator effets pour Mac OS | Mis à jour Adobe Illustrator effets pour PC Windows. Avec mélange humide et grille pixel art — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
